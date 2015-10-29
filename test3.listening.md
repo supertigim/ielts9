@@ -76,8 +76,8 @@ WOMAN: Nash. But don't worry about that. I'm coming to Upminster soon and l'll c
 
 MAN: Well, that's fine. We've got plenty here when you come.  
 
-=====
-
+=====  
+  
 WOMAN: If you've got a minute, could I just check a couple of points about insurance? I got one policy through the post but I'd like to see if yours is better.  
 
 MAN: Fine. What would you like to know?  
