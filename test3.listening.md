@@ -66,4 +66,60 @@ MAN: Well, **there are forests all around** and they hide a supermarket just dow
 
 WOMAN: And the price?  
 
-MAN: **£319 at that time**, but if you leave it till November it goes down by 40% Q5 Too late, I'm afraid. Well, why don't l send you a brochure with full details, Ms... Nash. But don't worry about that. I'm coming to Upminster soon and l'll call and get one. I just wanted to get an idea first. Well, that's fine. We've got plenty here when you come. If you've got a minute, could l just check a couple of points about insurance? got one policy through the post but I'd like to see if yours is better. Fine. What would you like to know? Well, the one I've got has benefits and then the maximum amount you can claim. Is that like yours? Yes, that's how most of them are. Well, the first thing is cancellation. If the holiday's cancelled on the policy I've got, you can claim £8,000. We can improve on that, Ms Nash For Greek lsland holidays, our Q6 maximum is £10,000. That's good of course our holiday won't even cost £1,000 together! It's still sensible to have good cover. Now, if you go to hospital, we allow £600. Yes, mine's similar. And we also allow a relative to travel to your holiday resort. My policy just says their representative will help you. You can see there's another difference there. And what happens if you don't get on the plane? Nothing, as far as can see on this form. Don't you have missed departure? No, I'll just jot that down We pay up to £1,000 for that, depending on the reason. And we're particularly generous about loss of personal belongings up to £3.000 but not more than £500 Q9 Then I'd better not take my laptop! Not unless you insure it separately. nks very much for your time you've really been helpful. Can get back to you? Your name is? W. I'm the Assistant Manager h give you my number. It's 60 543216 That's the main That's what I got on the paper Right, thank switchboard. I've given you my direct line you  
+MAN: **£319 at that time**, but if you leave it till November it goes down by 40% 
+
+WOMAN: Too late, I'm afraid. 
+
+MAN: Well, why don't I send you a brochure with full details, Ms...?  
+
+WOMAN: Nash. But don't worry about that. I'm coming to Upminster soon and l'll call and get one. I just wanted to get an idea first.  
+
+MAN: Well, that's fine. We've got plenty here when you come.  
+
+=====
+
+WOMAN: If you've got a minute, could I just check a couple of points about insurance? I got one policy through the post but I'd like to see if yours is better.  
+
+MAN: Fine. What would you like to know?  
+
+WOMAN: Well, the one I've got has benefits and then the maximum amount you can claim. Is that like yours?  
+
+MAN: Yes, that's how most of them are.  
+
+WOMAN: Well, the first thing is cancellation. If the holiday's cancelled on the policy I've got, you can claim £8,000.  
+
+MAN: We can improve on that, Ms Nash. **For Greek lsland holidays, our maximum is £10,000**.  
+
+WOMAN: That's good - of course our holiday won't even cost £1,000 together!  
+
+MAN: It's still sensible to have good cover. Now, if you go to hospital, we allow £600.  
+
+WOMAN: Yes, mine's similar.  
+
+MAN: And **we also allow a relative to travel to your holiday resort**.   
+
+WOMAN: My policy just says their representative will help you.  
+
+MAN: You can see there's another difference there. And what happens if you don't get on the plane?  
+
+WOMAN: Nothing, as far as I can see on this form.  
+
+MAN: Don't you have **missed departure**?  
+
+WOMAN: No, I'll just jot that down.  
+
+MAN: We pay up to £1,000 for that, depending on the reason. And we're particularly generous about loss of personal belongings - up to £3,000, but not more than **£500 for a single item**.  
+
+WOMAN: Then I'd better not take my laptop!  
+
+MAN: Not unless you insure it separately.  
+
+WOMAN: OK - thanks very much for your time - you've really been helpful. Can get back to you? Your name is?  
+
+MAN: **Ben-LudloW. That's L-U-D-L-O-W**. I'm the Assistant Manager here. I'll give you my number. It's 081260 543216.  
+
+WOMAN: But didn't I phone 081260 567294? That's what I've got on the paper.  
+
+MAN: That's the main switchboard. I've given you my direct line. 
+
+WOMAN: Right, thank you ...  
