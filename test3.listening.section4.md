@@ -7,7 +7,7 @@ Good morning. In the last few lectures I've been talking about the history of do
   
 So the first thing they did was to look for a site. And they found a disused stone quarry in a beautiful area. **The price was relatively low**, and they liked the idea of recycling the land, as it were. As it was, the quarry was an ugly blot on the landscape, and it wasn't productive any longer, either.  
     
-They consulted various architects and looked at a number of desgins before finally deciding on one. As I've said, it was designed for a sort of underground house, and it was built into the earth itself, with two storeys. The north, east and west sides were set in the earth, and only the sloping, south-facing side was exposed to light. **That was made of a double layer of very strong glass**. There were also photovoltaic tiles fixed to the top and bottom of this sloping wall. These are tiles that are designed to store energy from the sun. **And the walls had a layer of foam around them too, to increase the insultation**.   
+They consulted various architects and looked at a number of desgins before finally deciding on one. As I've said, it was designed for a sort of underground house, and it was built into the earth itself, with two storeys. The north, east and west sides were set in the earth, and only the sloping, south-facing side was exposed to the light. **That was made of a double layer of very strong glass**. There were also photovoltaic tiles fixed to the top and bottom of this sloping wall. These are tiles that are designed to store energy from the sun. **And the walls had a layer of foam around them too, to increase the insultation**.   
   
 =====  
   
