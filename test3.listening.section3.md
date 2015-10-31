@@ -85,12 +85,14 @@ TUTOR: Well, if you establish good study skills at this stage they'll be with yo
   
 CAROLINE: Oh yes, completely agree. It's just that I don't seem to be able to discipline myself. I need to talk things over.  
   
-TUTOR: Well, we'll be continuing these tutorials of course. Let's arrange next TUTOR month's now. Let's see can see you virtually any time during the week starting 22nd January.  
+TUTOR: Well, we'll be continuing these tutorials of course. Let's arrange next month's now. Let's see, I can see you virtually any time during the week starting 22nd January.  
   
-CAROLINE: What about the 24th? I'm free in the afternoon. Sorry, I'm booked then. What about the following day?  
+CAROLINE: What about the 24th? I'm free in the afternoon. 
+
+TUTOR: Sorry, I'm booked then. What about the following day?  
   
-TUTOR: Thursday? I can make the morning.  
+CAROLINE: Thursday? I can make the morning.  
 
-CAROLINE: Fine, **we'll go for the 25th then**.  
+TUTOR: Fine, **we'll go for the 25th then**.  
 
-TUTOR: That's great, thanks.  
+CAROLINE: That's great, thanks.  
