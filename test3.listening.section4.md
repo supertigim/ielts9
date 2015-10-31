@@ -11,7 +11,7 @@ They consulted various architects and looked at a number of desgins before final
   
 =====  
   
-Now, what is of interest to us about this project is the features which make the building energy-efficient. That helps to spread the light around. So that's the first thing ght is utilised as fully as fully as possible.  
+Now, what is of interest to us about this project is the features which make the building energy-efficient. **Sun light floods in through the glass wall, and to maximise it there are lots of mirrors and windows inside the house**. That helps to spread the light around. So that's the first thing ght is utilised as fully as fully as possible.  
   
 In addition, the speciall tiles on the outside convert energy from the sun and generate some of the house's electricity. In fact, and it's possible that in future the house may even generate an eletricity surplus, and that the owners will be able to sell some to the national grid.  
    
