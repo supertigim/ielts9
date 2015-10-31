@@ -63,6 +63,34 @@ CAROLINE: Sounds good.
 
 TUTOR: Yes, **unfortunately there are only a few places**. But it's worth looking into.   
   
-CAROLINE: Yes, of course. I know I've got to work on my study skills. And then there are several study skills books you can consult.  
+CAROLINE: Yes, of course. I know I've got to work on my study skills. 
+
+TUTOR: And then there are several study skills books you can consult.  
   
-TUTOR: Right.  
+CAROLINE: Right.  
+  
+TUTOR: They'll be a good source of reference but **the problem is there are something general**.    
+  
+CAROLINE: Yes, that's what I've found.  
+  
+TUTOR: Other than that I would strongly advise quite simple ideas like using a card index.  
+  
+CAROLINE: Well, yes, I've never done that before.  
+  
+TUTOR: It's simple, but it really works because you have to get points down in a small space. Another thing I always advise is don't just take your notes and forget about them. Read everything three times that'll really fix them in your mind.  
+  
+CAROLINE: Yes, I can see it'd take discipline but...  
+  
+TUTOR: Well, if you establish good study skills at this stage they'll be with you all your life.  
+  
+CAROLINE: Oh yes, completely agree. It's just that I don't seem to be able to discipline myself. I need to talk things over.  
+  
+TUTOR: Well, we'll be continuing these tutorials of course. Let's arrange next TUTOR month's now. Let's see can see you virtually any time during the week starting 22nd January.  
+  
+CAROLINE: What about the 24th? I'm free in the afternoon. CAROLINE Sorry, I'm booked then. What about the following day?  
+  
+TUTOR: Thursday? I can make the morning.  
+
+CAROLINE: Fine, **we'll go for the 25th then**.  
+
+TUTOR: That's great, thanks.  
