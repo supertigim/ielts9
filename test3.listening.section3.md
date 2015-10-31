@@ -41,7 +41,7 @@ CAROLINE: What do you suggest?
   
 =======  
 
-TUTOR: Well, can go through the possible strategies with you and let you decide where to go from there.  
+TUTOR: Well, I can go through the possible strategies with you and let you decide where to go from there.  
   
 CAROLINE: Okay, thanks. 
 
