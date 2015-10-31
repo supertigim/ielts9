@@ -77,7 +77,7 @@ TUTOR: Other than that I would strongly advise quite simple ideas like using a c
   
 CAROLINE: Well, yes, I've never done that before.  
   
-TUTOR: It's simple, but it really works because you have to get points down in a small space. Another thing I always advise is don't just take your notes and forget about them. Read everything three times that'll really fix them in your mind.  
+TUTOR: It's simple, but it really works because you have to get points down in a small space. Another thing I always advise is don't just take your notes and forget about them. **Read everything three times** - that'll really fix them in your mind.  
   
 CAROLINE: Yes, I can see it'd take discipline but...  
   
@@ -87,7 +87,7 @@ CAROLINE: Oh yes, completely agree. It's just that I don't seem to be able to di
   
 TUTOR: Well, we'll be continuing these tutorials of course. Let's arrange next TUTOR month's now. Let's see can see you virtually any time during the week starting 22nd January.  
   
-CAROLINE: What about the 24th? I'm free in the afternoon. CAROLINE Sorry, I'm booked then. What about the following day?  
+CAROLINE: What about the 24th? I'm free in the afternoon. Sorry, I'm booked then. What about the following day?  
   
 TUTOR: Thursday? I can make the morning.  
 
