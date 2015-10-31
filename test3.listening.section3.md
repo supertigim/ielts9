@@ -11,39 +11,35 @@ TUTOR: So how's the dissertation planning going?
 
 CAROLINE: Well Dr Schulmann, I'm still having a lot of trouble deciding on a title. 
 
-Well, that's perfectly normal at this stage. And this is what your tutorials will help you to do. 
+TUTOR: Well, that's perfectly normal at this stage. And this is what your tutorials will help you to do.  
+  
+CAROLINE: Right.   
+  
+TUTOR: What we'll do is jot down some points that might help you in your decision. First of all, you have chosen your general topic area, haven't you? 
 
-Right. 
-
-What we'll do is jot down some points that might help you in your decision. 
-First of all, you have chosen your general topic area, haven't you? 
-
-Yes, it's the fishing industry. Q21 
-
-Oh yes, that was one of the areas you mentioned. 
-Now, what aspects of the course are you good at? 
-
-Well, LthinkIm coping welLwith statistics, and I'm never bored by it. 
-
-Good. Anything else? Q22 
-
-Well, I found computer modelling fascinating have no problem following what's being taught, 
-whereas quite a few of my classmates find it difficult 
-
-Well, that's very good. Do you think these might be areas you could bring into your dissertation? 
-
-Oh yes, if possible. It's just that I'm having difficulty thinking how lcan do that. 
-You see I feel I don't have sufficient background information. 
-
-I see. Well, do you take notes? 
-
-I'm vend weak at note-taking. My teachers always used to say that. Q23 
-
-Well, I think you really need to work on these weaknesses before you go any further. 
-
-What do you suggest? 
-
-=======
+CAROLINE: Yes, it's **the fishing industry**.  
+  
+TUTOR: Oh yes, that was one of the areas you mentioned. Now, what aspects of the course are you good at?  
+  
+CAROLINE: Well, **I think I'm coping wel with statistics**, and I'm never bored by it.  
+  
+TUTUR: Good. Anything else?   
+  
+CAROLINE: Well, I found computer modelling fascinating - I have no problem following what's being taught, whereas quite a few of my classmates find it difficult.  
+  
+TUTOR: Well, that's very good. Do you think these might be areas you could bring into your dissertation?  
+  
+CAROLINE: Oh yes, if possible. It's just that I'm having difficulty thinking how I can do that. You see I feel I don't have sufficient background information.   
+  
+TUTOR: I see. Well, do you take notes?   
+  
+CAROLINE: **I'm very weak at note-taking**. My teachers always used to say that.  
+  
+TUTOR: Well, I think you really need to work on these weaknesses before you go any further. 
+  
+CAROLINE: What do you suggest?   
+  
+=======  
 
 Well, can go through the possible strategies with you and let you decide where to go from there. 
 
