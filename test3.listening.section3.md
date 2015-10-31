@@ -41,29 +41,28 @@ CAROLINE: What do you suggest?
   
 =======  
 
-Well, can go through the possible strategies with you and let you decide where to go from there. 
+TUTOR: Well, can go through the possible strategies with you and let you decide where to go from there.  
+  
+CAROLINE: Okay, thanks. 
 
-Okay, thanks. 
+TUTOR: Well, some people find it helpful to organise peer-group discussions you know, each week a different person studies a different topic and shares it with the group. 
 
-Well, some people find it helpful to organise peer-group discussions you know, each week a different person studies a different topic and shares it with the group. 
+CAROLINE: Oh right.  
 
-Oh right. 
+TUTOR: **It really helps build confidence**, you know, having to present something to others.   
+  
+CAROLINE: I can see that.   
+  
+TUTOR: **Ihe drawback is that everyone in the group seems to share the same ideas... they keep being repeated in all the dissertations**.  
+  
+CAROLINE: Okay.  
+  
+TUTOR: You could also try a service called 'Student Support'. It's designed to give you a structured programme over a number of weeks to develop your skills.  
+  
+CAROLINE: Sounds good.  
 
-at really helps build confidence, you know, having to present something to Q24 others 
-
-I can see that 
-
-Ihe drawback is that everyone in the group seems to share the same Q25 ideas they keep being repeated in all the dissertation 
-
-okay. 
-
-You could also try a service called Student Sup It's designed to give Q26 you a structured programme over a number of weeks to develop your 
-
-Sounds good 
-
-Yes, unfortunately there are only a few places. But it's worth looking into. Q27 
-
-Yes, of course. I know I've got to work on my study skills. And then there are several study skills books you can consult. 
-
-Right.  
-
+TUTOR: Yes, **unfortunately there are only a few places**. But it's worth looking into.   
+  
+CAROLINE: Yes, of course. I know I've got to work on my study skills. And then there are several study skills books you can consult.  
+  
+TUTOR: Right.  
