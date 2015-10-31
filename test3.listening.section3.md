@@ -69,7 +69,7 @@ TUTOR: And then there are several study skills books you can consult.
   
 CAROLINE: Right.  
   
-TUTOR: They'll be a good source of reference but **the problem is there are something general**.    
+TUTOR: They'll be a good source of reference but **the problem is there are sometimes too general**.    
   
 CAROLINE: Yes, that's what I've found.  
   
