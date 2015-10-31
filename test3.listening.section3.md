@@ -53,7 +53,7 @@ TUTOR: **It really helps build confidence**, you know, having to present somethi
   
 CAROLINE: I can see that.   
   
-TUTOR: **Ihe drawback is that everyone in the group seems to share the same ideas... they keep being repeated in all the dissertations**.  
+TUTOR: **The drawback is that everyone in the group seems to share the same ideas... they keep being repeated in all the dissertations**.  
   
 CAROLINE: Okay.  
   
