@@ -30,6 +30,6 @@ MAN: **I've left you a local map**, so you'll be able to find your way around ea
 WOMAN: Thanks. What about visiting the town? Can you give us any advice?   
   
 MAN: Yes. You'll need to take the car. It's too far to walk from the flat really. You have to pay to leave your car in all the car parks now I'm afraid... I like the one that's by the station best and you can walk to the town centre from there in five minutes. That's where all the best restaurants are. But if you want a takeaway, the Italian one does really good pasta and **pizzas. Call 7-3 double 2, 8-1 for that** one, or 7 double 6, double 1, 9 for the Chinese. They're both good and they'll both deliver to the flat.  
-As for places to visit, yes, do go and see the railway museum. The exhibition is small but really good. It gets very crowded on Sundays, so I suggest you visit it on a quieter day, later in the week, but **not on Thursdays** which is market day - you won't find anywhere to park and it's also **the only day of the week when they're not open!. Anything else?  
+As for places to visit, yes, do go and see the railway museum. The exhibition is small but really good. It gets very crowded on Sundays, so I suggest you visit it on a quieter day, later in the week, but **not on Thursdays** which is market day - you won't find anywhere to park and it's also **the only day of the week when they're not open! Anything else?  
   
 WOMAN: Not for the moment. Thanks!    
